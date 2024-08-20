@@ -7,3 +7,6 @@ Meu nome é Letícia
 
 ### Para entra em contato comigo 🎀
 lehmaranhao18@gmail.com
+
+
+![](https://tenor.com/pt-BR/view/grown-ups-me-gif-10768732)
